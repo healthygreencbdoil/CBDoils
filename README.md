@@ -1,0 +1,2 @@
+# CBDoils
+Healthy Green CBD Oil’ mission is to offer users a safe, effective alternative to prescription painkillers, other toxic prescription drugs and over-the-counter drugs that contain harsh chemical compounds alien to nature’s perfect remedies. Our licensed pharmacist compounds creams, salves, oils and edible products that are specially formulated with soothing botanicals, and natural plant-based ingredients including precise combinations of the cannabinoid. Our vision is to bring our customers natural products and understand that “There’s Always An Alternative!”
